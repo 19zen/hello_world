@@ -2,6 +2,6 @@
 
 ### Zen was here
 
-### KaoGreg was here
+### Kao was here
 
 ### Kyubs was here
